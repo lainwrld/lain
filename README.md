@@ -4,6 +4,7 @@
 <img width="604" height="32" alt="image" src="https://github.com/user-attachments/assets/b220256d-ae35-407b-bdee-af0f11288d0d" />
 <br> <br>
 elizabeth | 25
+I'm extremely hard to work with and I won't apologize for it! People still want to be associated with me no matter how nasty I am, oh well! Love it!
 <br> <br>
 
 <img width="604" height="32" alt="image" src="https://github.com/user-attachments/assets/71ca952a-fba8-4f6c-9ec5-0980cb93fcfa" />
