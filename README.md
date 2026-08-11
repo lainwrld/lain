@@ -1,6 +1,6 @@
 # lain
 
-<img width="736" height="783" alt="image" src="https://github.com/user-attachments/assets/2e681f74-e448-4cf2-ada0-a4f01b252d78" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/2e681f74-e448-4cf2-ada0-a4f01b252d78" />
 
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/43638710-a0fb-4e35-8910-adaedda9b027" /> 
