@@ -4,7 +4,7 @@
 <img width="604" height="32" alt="image" src="https://github.com/user-attachments/assets/b220256d-ae35-407b-bdee-af0f11288d0d" />
 
 <br> <br>
-
+hi i'm elizabeth! 
 <br> <br>
 <img width="604" height="32" alt="image" src="https://github.com/user-attachments/assets/71ca952a-fba8-4f6c-9ec5-0980cb93fcfa" />
 
